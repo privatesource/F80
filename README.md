@@ -1,1 +1,1 @@
-# F80
+# [F80](telegram.me/F80_SPRCPU)
